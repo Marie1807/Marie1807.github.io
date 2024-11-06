@@ -22,4 +22,4 @@
 <h2>
 <p>Sabrina Carpenter:"Eu sempre tento colocar minhas experiências nas minhas músicas, e esse álbum é definitivamente um dos mais pessoais que já fiz. Foi uma jornada de auto descoberta e muita experimentação. Sinto que é importante ser honesta e, às vezes, isso significa me expor de formas que podem ser desconfortáveis. Mas no final, foi libertador e acho que muitos dos meus fãs se identificaram com isso.<p>
 <p> Monique Marie B. L. Damas Nº30 1ºC </p>
-</html>
+
